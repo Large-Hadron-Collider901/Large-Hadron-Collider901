@@ -1,3 +1,3 @@
 
-![sun-img](https://media.giphy.com/media/67uxmHhIF3uh6Ph8ew/giphy-downsized-large.gif) 
+![sun-img](https://tenor.com/view/anime-aesthetic-sky-nature-gif-16910599.gif) 
 # Hey there, I'm Skye!
