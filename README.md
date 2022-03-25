@@ -1,3 +1,3 @@
 
-![sun-img](https://tenor.com/view/anime-aesthetic-sky-nature-gif-16910599.gif) 
+![sun-img](https://tenor.com/view/good-afternoon-hands-playtime-gif-13624631.gif) 
 # Hey there, I'm Skye!
