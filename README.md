@@ -1,2 +1,2 @@
 
-![sun-img](https://i.ibb.co/yn9nSTh/sun-image.png)
+![sun-img](https://i.ibb.co/WfdW340/example.png)
